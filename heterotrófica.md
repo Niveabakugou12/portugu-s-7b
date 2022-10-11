@@ -1,0 +1,1 @@
+Heterotrofismo ou seres heterotróficos, refere-se àqueles seres vivos que não possuem a capacidade de produzir seu próprio alimento. Sua alimentação é através da ingestão de compostos orgânicos, sendo então, dependente de seres vivos autotróficos ou de outros heterotróficos para obtenção destes compostos.
